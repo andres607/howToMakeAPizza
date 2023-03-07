@@ -20,7 +20,3 @@ Para la masa de pizza:
 3. 125 ml. de agua templada
 4. 20 gr. de levadura prensada
 5. Sal
-
-Elaboración de la receta de Pizza boloñesa:
-
-1. Para hacer la masa coloca la harina en un cuenco. Desmenuza la levadura y añádela. Vierte la leche y la mitad del agua. Sazona y amasa. Agrega el resto del agua y amasa durante 5-10 minutos. Tapa el cuenco con un paño y deja fermentar durante 1 hora.
